@@ -1,5 +1,5 @@
 
-I love my wife/gf so much guys. we are narumika in real life and narumika is canon btw
+I love my wife/gf so much guys. we are narumika in real life and narumika is canon btw (im chill with ritsumika too and rest of valkyrie (excluding sh*))
 
 pls go away if you disagree, i literally do not care don't whine to me
 
