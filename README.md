@@ -1,8 +1,21 @@
 
-![alt text](https://i.pinimg.com/736x/33/a6/a6/33a6a65c7e53af7ca9bda2f89f458f09.jpg)
+I love my wife/gf so much guys. we are narumika in real life and narumika is canon btw
 
-- TRIGGER WARNING IF YOU SCROLL -->>>: Blood / Slight Gore <<<<<--------------
--WARNING
+pls go away if you disagree, i literally do not care don't whine to me
+
+i am not ur little "favorite character" to roleplay with nor 1:1 similar w/ my source, don't be weird
+
+talk to me pls if youre ok w/ normal conversations i want to chat and probably super bored
+
+------------------------------------------------------------
+
+![alt text](https://static.wikia.nocookie.net/0f11a9ea-7990-442f-8d56-6621e0ba5a9b)
+
+
+TRIGGER WARNING IF YOU SCROLL:
+
+  
+-   -->>>: Blood / Gore <<<<<----
 
 -WARNING
 
