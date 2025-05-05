@@ -1,16 +1,54 @@
-## Hi there 👋
 
-<!--
-**IivingdoII/IivingdoII** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![alt text](https://i.pinimg.com/736x/33/a6/a6/33a6a65c7e53af7ca9bda2f89f458f09.jpg)
 
-Here are some ideas to get you started:
+- TRIGGER WARNING IF YOU SCROLL -->>>: Blood / Slight Gore <<<<<--------------
+-WARNING
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+-WARNING
+
+
+![alt text](https://pbs.twimg.com/media/FOlYh1qXEAQhd8K.jpg)
